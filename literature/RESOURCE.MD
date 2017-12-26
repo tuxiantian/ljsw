@@ -6,8 +6,8 @@ http://www.gushiwen.org/zhishi/cipai.aspx?WebShieldDRSessionVerify=xzq2ZUGkTjbSm
 我天性不宜交际在多数场合,我不是觉得对方乏味,就是害怕对方觉得我乏味
 可是我既不愿忍受对方的乏味,也不愿费劲使自己显得有趣,那都太累了
 我独处时最轻松,因为我不觉得自己乏味,即使乏味,也自己承受,不累及他人,无需感到不安
-                                                 ——周国平
----
+—周国平
+
 [李笑来知笔墨图书](http://zhibimo.com/explore/books)  
 [我也有话要说——普通人的当众讲话技能](http://zhibimo.com/read/xiaolai/wo-ye-you-hua-yao-shuo--pu-tong-ren-de-jiang-yan-ji-neng/index.html)  
 
