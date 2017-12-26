@@ -9,6 +9,7 @@ http://www.gushiwen.org/zhishi/cipai.aspx?WebShieldDRSessionVerify=xzq2ZUGkTjbSm
 —周国平
 
 [李笑来知笔墨图书](http://zhibimo.com/explore/books)  
+
 [我也有话要说——普通人的当众讲话技能](http://zhibimo.com/read/xiaolai/wo-ye-you-hua-yao-shuo--pu-tong-ren-de-jiang-yan-ji-neng/index.html)  
 
 
