@@ -1,6 +1,6 @@
 # ljsw
 
-[罗辑思维](http://www.ljsw.cc/)  
+[罗辑思维](http://www.luojiji.com/)  
 
 来稿邮箱：ljsw@luojilab.com。
 
